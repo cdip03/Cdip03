@@ -11,6 +11,7 @@
 - 💬 Ask me about **IT Support**
 
 - 📫 How to reach me **dipchowdhury654@gmail.com**
+-  Linkedin **www.linkedin.com/in/cdip03**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
