@@ -6,9 +6,9 @@
 
 
 
-- 🌱 I’m currently learning **Devops**
+- 🌱 I’m currently Working in **IT**
 
-- 💬 Ask me about **GCP**
+- 💬 Ask me about **IT Support**
 
 - 📫 How to reach me **dipchowdhury654@gmail.com**
 
